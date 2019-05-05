@@ -15,6 +15,6 @@
 ![习题.png](https://i.loli.net/2019/05/05/5cceca3c4fea1.png)
 ![习题一笔.gif](https://i.loli.net/2019/05/05/5cceca8dd0d28.gif)
 ![六芒星.png](https://i.loli.net/2019/05/05/5cceca3bc1ec9.png)
-![六芒星一笔.gif](https://i.loli.net/2019/05/05/5cceca3e11dc8.gi
-![五角星.png](https://i.loli.net/2019/05/05/5cceca3c63ac3.png)f)
+![六芒星一笔.gif](https://i.loli.net/2019/05/05/5cceca3e11dc8.gif)
+![五角星.png](https://i.loli.net/2019/05/05/5cceca3c63ac3.png)
 ![五角星一笔.gif](https://i.loli.net/2019/05/05/5cceca3dcff1b.gif)
